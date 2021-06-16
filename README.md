@@ -1,1 +1,5 @@
 # Radio
+
+
+In honour of the first World Radio Day in 2012, Lifeline Energy, FrontlineSMS, SOAS Radio and Empowerhouse hosted a seminar in London. A variety of practitioners, academics and tools providers joined at the School of Oriental and African Studies to explore ways in which radio reaches even the most remote and vulnerable communities.[8] Speakers included Guy Berger (Director for Freedom of Expression and Media Development at UNESCO), Dr Chege Githiora (Chairman of the Centre of African Studies at SOAS), Birgitte Jallov (Empowerhouse/ Panos London), Amy O'Donnell (FrontlineSMS:Radio), Carlos Chirinos (SOAS Radio), and Linje Manyozo (LSE). The panel was moderated by Lucy Durán (SOAS, BBC Radio 3, Human Planet).[citation needed] At the University of Pisa in Italy, a public event was held on 13 February 2012 to commemorate World Radio Day. The event was organized by Italradio and the Faculty of Engineering and Telecommunication and focused on the cost and ease of use of radio as a source of information. Pisa was chosen as the first Italian city to host an intercontinental radio station built by Marconi in the early years of 20th century.[9]
+
